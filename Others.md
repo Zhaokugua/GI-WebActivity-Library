@@ -6,8 +6,7 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/44676385
 
-
-![image](https://github.com/Zhaokugua/GI-WebActivity-Library/assets/62331496/bdd7fefe-3ba3-4037-ae34-218ed16f21d8)### 2023-9-28 【网页活动上线】尘星旅梦——参与可得原石等游戏内奖励
+### 2023-9-28 【网页活动上线】尘星旅梦——参与可得原石等游戏内奖励
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/09/27/75276539/f755819046e55458c04d946f79f39abe_6078643786142647572.png)
 
@@ -129,6 +128,7 @@
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/07/11/75276539/33b112529b9fb80af84371e25afca40b_4376474574299145933.png)
 
 活动地址：https://mhyurl.cn/41oQDBAd
+https://act.mihoyo.com/ys/event/e20230623fes-land-ud46if/index.html
 
 米游社地址：https://www.miyoushe.com/ys/article/41159964
 
@@ -310,6 +310,13 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/29376465
 
+### 2022-09-22 原神×支付宝主题活动开启！
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/09/21/75276539/bb999e1f0bec5617a65568055584ad14_2599174308790283517.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://genshin.1752e.com/ys/9/ys_zfb/7/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/29246295
+
 
 ### 2022-9-21 「游音旅梦」——《原神》音乐二周年回顾H5正式上线
 
@@ -378,6 +385,13 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/20874895
 
+### 2022-1-29 【已开奖】「流彩贺佳节」网页活动现已开启 分享贺卡拿奖励！
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/01/28/75276545/27a1a74614ab86960c564a2eae76ff7a_4068900131102842656.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20220129-postcard/index.html?game_biz=hk4e_cn&bbs_presentation_style=fullscreen&bbs_auth_required=true&bbs_landscape=true%20&utm_source=bbs&utm_medium=mys&utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/15299462
+
 ### 2022-1-28 【已开奖】「尘歌宴仙归」网页活动现已开启——参与得原石等奖励
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2022/01/27/76387920/2ab70cfc815b6426f50a3f9739cbdc79_4578938044318347173.jpg)
@@ -385,6 +399,14 @@
 活动地址：https://webstatic.mihoyo.com/ys/event/e20220128lantern/index.html?game_biz=hk4e_cn&amp;bbs_presentation_style=fullscreen&amp;bbs_auth_required=true&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
 
 米游社地址：https://www.miyoushe.com/ys/article/15240406
+
+### 2021-12-31 「丘丘人的编辑协会」活动开启！有机会获得米游币和头像挂件！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/12/30/75276545/ecd7f61abf97b5c711637d24a863e2c2_7144609991267568619.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/answer-question/collect.html?activity_no=2654cdd00ecd4ad6&amp;bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/13888955
 
 ### 2021-12-29 《原神》「雪峰胜景 星耀奇旅」网页活动现已上线
 
@@ -432,6 +454,22 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/9957857
 
+### 2021-9-1 原神「相伴同行」活动 9月1日开启
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/09/01/75276550/ad0017b73e93fa1cb595b458333cb474_847189214948127638.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210901people/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true&amp;game_biz=hk4e_cn&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/9090065
+
+### 2021-8-27 「派蒙的十万个为什么」答题活动正式开启啦！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/08/27/75276550/21bb236ef604edbf03327aacce29be3d_5829879994450296095.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/answer-question/index.html?activity_no=58becefd9edf4af6&amp;bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/8916261
+
 ### 2021-8-21 「原神☆FES」&「原神交响音乐会」官网预约现已开启！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2021/08/21/75276539/ebd661eda05bdcc6bedeb301e2fbfe31_4974260815661148309.png)
@@ -441,6 +479,14 @@
 https://ysanniv.mihoyo.com/2021/#/concert
 
 米游社地址：https://www.miyoushe.com/ys/article/8744115
+
+### 2021-7-13 【已开奖】「神秘的远航」网页活动现已开启 一起向未知的海域起
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/07/13/75276545/b11a745ba7d49bcaa75f812ee11c2b9c_7106784344491363245.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210713warm/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/7427491
 
 ### 2021-07-03 「旅行绘本」H5活动：完成绘制获得摆设图纸「花海的摇篮」
 
@@ -458,6 +504,14 @@ https://ysanniv.mihoyo.com/2021/#/concert
 
 米游社地址：https://www.miyoushe.com/ys/article/5765048
 
+### 2021-4-21 【网页活动上线】「丘丘梦工坊」限时开张，制作摆设得奖励！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/04/19/75276545/e2dab098f2377d7119d9f11d023e7d7e_5893219282765294805.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210421-homeland/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/5632582
+
 ### 2021-3-2 「客至万民堂」H5活动正式上线
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2021/03/01/75276539/335cd0589e2b58873b8dbd19649f572b_5393559273812514944.png)
@@ -465,6 +519,14 @@ https://ysanniv.mihoyo.com/2021/#/concert
 活动地址：https://webstatic.mihoyo.com/ys/event/e20200225cooking/index.html?utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
 
 米游社地址：https://www.miyoushe.com/ys/article/4732534
+
+### 2021-2-25 旅行者，一起来和我放飞霄灯吧！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/02/24/75276545/7907fdcdcb32bb29b0744eadd2e11a52_4711636080023552841.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210219lantern/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true
+
+米游社地址：https://www.miyoushe.com/ys/article/4640141
 
 ### 2021-2-20 【已开奖】提瓦特冒险记—愿寄明霄灯
 
@@ -476,6 +538,22 @@ https://webstatic.mihoyo.com/ys/event/e20210219lantern/index.html?bbs_auth_requi
 
 米游社地址：https://www.miyoushe.com/ys/article/4549947
 
+### 2021-2-19 点亮五种霄灯 分享原石大奖！H5活动「愿寄明霄灯」正式开启
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/02/18/75276545/c262433a990c3f0bcdf8e9c758c58f84_8240826193846288110.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210219lantern/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true
+
+米游社地址：https://www.miyoushe.com/ys/article/4533155
+
+### 2021-1-26 【丘丘贴士】丘丘人的一小步——在「史莱姆乐园」实现烤肉自由？
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/01/26/75276545/8a109d493182de8db41d5280d67e7ce6_4586026001476360067.gif)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210122-slime/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true&amp;v=2&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/3916485
+
 ### 2021-1-22 【活动已结束】成为史莱姆饲养员吧—「史莱姆乐园」正式开业！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2021/01/22/76387920/2690446b650d4774b41e78a885147030_6673770448702392511.jpg)
@@ -483,6 +561,26 @@ https://webstatic.mihoyo.com/ys/event/e20210219lantern/index.html?bbs_auth_requi
 活动地址：https://webstatic.mihoyo.com/ys/event/e20210122-slime/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true&amp;v=2&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
 
 米游社地址：https://www.miyoushe.com/ys/article/3850518
+
+
+
+### 2020-10-13 「冒险家！集结！」邀请活动正式开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/10/13/75276550/5129553a93c51f32ccd6a921cb367c2b_4864216066220082892.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20201013-invite/index.html?bbs_auth_required=true&amp;utm_source=inva&amp;utm_medium=ys&amp;utm_campaign=article
+
+米游社地址：https://www.miyoushe.com/ys/article/2207415
+
+### 2020-9-15 【有奖活动】体验新手冒险指南，必得纪念头像框、游戏奖励！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/09/15/75276550/940b848ae7d5b0381ae92a2b203b133d_3586262199022435730.jpg)
+
+活动地址：https://webstatic.mihoyo.com/bbs/event/bbs-20200803ysob/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=article#/
+
+https://bbs.mihoyo.com?&amp;utm_source=game&amp;utm_medium=ys&amp;utm_campaign=notice#/
+
+米游社地址：https://www.miyoushe.com/ys/article/1753761
 
 ### 2020-9-15 《原神》PC版技术性开放测试现已开启
 
@@ -492,5 +590,51 @@ https://webstatic.mihoyo.com/ys/event/e20210219lantern/index.html?bbs_auth_requi
 
 米游社地址：https://www.miyoushe.com/ys/article/1748325
 
+### 2020-08-31 「出行整备」——《原神》预抽卡活动开启！
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/08/31/74757616/470263e1235cac29ab0914af6464937b_3792963247236191856.png?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20200829/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/1657990
+
+### 2020-6-12 【已开奖】弦上回音——为温迪庆生赢「启程测试」资格
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/06/12/75276550/883be45e75edfa3ca3f80e3e233a2450_1381319839832940065.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20200612music/index.html?utm_source=bbs&amp;utm_medium=article&amp;utm_campaign=4
+
+米游社地址：https://www.miyoushe.com/ys/article/1301565
+
+### 2020-5-1 【已开奖】完成飞行挑战，晒出你的成绩！变身派蒙的飞行挑战
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/05/01/75276550/92ddb173de084645413cc02f1724fc7a_1572303053345216130.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20200501fly/index.html
+
+https://bbs.mihoyo.com/ys/article/48940
+
+米游社地址：https://www.miyoushe.com/ys/article/1121248
+
+### 2020-3-24 【已开奖】冒险之约~约定相见
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/03/26/75276550/cb88d6ee23feddbccb8f79c3c219f9a1_8112303068630899144.jpeg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/sealamp/index.html
+
+https://bbs.mihoyo.com/ys/article/48940
+
+米游社地址：https://www.miyoushe.com/ys/article/922926
+
+### 2020-2-3 【已结束】和安柏一起烹饪，获取再临测试资格！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/02/03/75276550/fe6753ce9e9789f23099dc9dd7e3b679_4098978285989407322.png)
+
+活动地址：https://bbs.mihoyo.com/ys/article/622636
+
+https://webstatic.mihoyo.com/ys/event/e20191209festival/index.html?bbs_auth_required=true&amp;bbs_landscape=true#/
+
+https://webstatic.mihoyo.com/hk4e/event/e20191230-global-survey/index.html?auth_ap*=Wbol3bvl3X1NnclZVe29nM3wnNxwGfrhGNfV2Y=4&amp;sign_type=2&amp;authkey_ver=1&amp;game_biz=hk4e_cn&amp;surveyId=76&amp;format=1&amp;lang=zh-cn#/?auth_ap*=Wbol3bvl3X1NnclZVe29nM5wHNxwGfrhGNfV2Y=4&amp;sign_type=2&amp;authkey_ver=1&amp;game_biz=hk4e_cn&amp;surveyId=94&amp;format=1
+
+米游社地址：https://www.miyoushe.com/ys/article/602789
 
 
