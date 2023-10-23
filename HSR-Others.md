@@ -28,6 +28,13 @@ https://bbs.mihoyo.com/sr/article/10339006
 
 米游社地址：https://www.miyoushe.com/ys/article/39015236
 
+### 2023-05-04 「群星如诉」OST宣传H5正式上线
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/05/04/288909600/835857975f6056522391567c7060f5c4_423004521980249781.png?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,png)
+
+活动地址：https://c6.y.qq.com/base/fcgi-bin/u?__=GomsSctEhejA
+
+米游社地址：https://www.miyoushe.com/sr/article/38966656
 
 ### 2023-4-28 「无尽的三月七」网页活动开启！
 
