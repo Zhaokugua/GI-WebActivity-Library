@@ -37,3 +37,6 @@ OST宣传页：[OST.md](OST.md)
 
 [原神3.8版本《清夏! 乐园? 大冒险》活动展示页可莉Unity还原动态壁纸制作](https://github.com/Dongyifengs/Secret-Summer-Paradise-Keli-Live-Wallpaper)
 
+[【原神】网页活动存档纪念](https://www.miyoushe.com/ys/collection/1702383)
+
+[【原神】网页活动壁纸素材存档合集（历史纪念）](https://www.miyoushe.com/ys/article/33494729)
