@@ -1,6 +1,8 @@
 # GI-WebActivity-Library
 原神网页H5活动链接收集 | Genshin Impact H5 Web Activity Collection
 
+新版本先行展示页：[Perview.md](Perview.md)
+
 新角色展示页：[Character.md](Character.md)
 
 版本专题页：[BluePost.md](BluePost.md)
