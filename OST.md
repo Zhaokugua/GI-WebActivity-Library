@@ -31,7 +31,19 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/34075207
 
+### 2022-10-22 「郁林寻音」——《原神》须弥篇OST宣传H5正式上线
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/10/21/75276539/4e424b7d97cf252d72dae7dbbf25489a_1647779973260070782.png?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,png)
 
+活动地址：https://s.r.sn.cn/AT8tnh
+
+米游社地址：https://www.miyoushe.com/ys/article/30580438
+
+### 2022-08-16 「歌行世间」——《原神》2.0回顾主题OST宣传H5正式上线
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/08/15/75276539/0aabbf9dafdbb36bb63a77c9d641a69a_3754026140353914155.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://genshin.1752e.com/ys/8/ys_gxsj/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/27393213
 
 ### 2022-6-23 「岩渊回响」——《原神》层岩巨渊主题OST宣传H5正式上线。
 
@@ -42,6 +54,43 @@
 米游社地址：https://www.miyoushe.com/ys/article/24531431
 
 
+### 2022-04-15 「落樱有声」——《原神》稻妻篇第二张OST宣传H5正式上线
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/04/14/75276545/6b3585ff164a83181d104036053fbfd2_366296403236823408.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://st.music.163.com/c/3rd/yslyys/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/20530351
 
 
+### 2022-01-27 「星光留声机」——《原神》第二张角色OST宣传H5正式上线
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/01/27/75276539/0fb75e0d08323b2ed14dc07278c0db38_8341018098526468451.png?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,png)
+
+活动地址：https://st.music.163.com/c/3rd/yx/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/15170298
+
+### 2021-09-24 「雷影循声」——《原神》稻妻篇OST宣传H5正式上线
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/09/24/75276539/4757d54e5ee8f90624c988a584ca4f91_258181813321314686.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://st.music.163.com/c/3rd/ysthunder/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/9868935
+
+### 2021-07-05 「寻声之旅，点亮音律」：《原神》OST寻声之旅
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/07/05/75276539/7e23cdc0b6e187f6305b42682d79ea2a_8374698274324786129.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://genshin.1752e.com/ys/6/mys/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/7251080
+
+
+### 2021-04-02 「寻迹雪山，声临其境」：《原神》龙脊雪山OST音乐之旅
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/04/01/75276539/ff96d4fdda2e31a9ebf55896ac6db38b_3867959328976965907.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://genshin.1752e.com/xsh5/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/5286586
 
