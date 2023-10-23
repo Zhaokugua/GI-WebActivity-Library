@@ -33,5 +33,5 @@ OST宣传页：[OST.md](OST.md)
 
 [⭐原神活动H5页面上有关Spine动效整理 / ⭐ Original god activities H5 page about Spine animation collation](https://github.com/Dongyifengs/Genshin-Impact-Web-Material)
 
-
+[原神3.8版本《清夏! 乐园? 大冒险》活动展示页可莉Unity还原动态壁纸制作](https://github.com/Dongyifengs/Secret-Summer-Paradise-Keli-Live-Wallpaper)
 
