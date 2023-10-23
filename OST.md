@@ -38,6 +38,13 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/30580438
 
+### 2022-09-21 「游音旅梦」——《原神》音乐二周年回顾H5正式上线
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/09/20/75276539/591a2ad854540a90f32009275c1f5b78_2999832999136104667.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://genshin.1752e.com/ys/9/ys_ann/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/29211505
+
 ### 2022-08-16 「歌行世间」——《原神》2.0回顾主题OST宣传H5正式上线
 ![预览图](https://upload-bbs.miyoushe.com/upload/2022/08/15/75276539/0aabbf9dafdbb36bb63a77c9d641a69a_3754026140353914155.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
 
@@ -76,6 +83,13 @@
 活动地址：https://st.music.163.com/c/3rd/ysthunder/index.html
 
 米游社地址：https://www.miyoushe.com/ys/article/9868935
+
+### 2021-07-20 「记忆的回音」：《原神》1.0回顾主题OST回忆之旅
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/07/19/75276539/fc06932fb25fb2affb931db52af9d80f_410757568704919484.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://genshin.1752e.com/ys/7/wx/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/7605649
 
 ### 2021-07-05 「寻声之旅，点亮音律」：《原神》OST寻声之旅
 
