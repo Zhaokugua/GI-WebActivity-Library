@@ -5,6 +5,8 @@
 
 部分链接直接用电脑访问会返回二维码页面，需要模拟成手机设备访问才能进入（浏览器模拟移动设备/切换设备仿真）。
 
+国内预览图加载不出来可以试试去Gitee：[https://gitee.com/jixiaob/GI-WebActivity-Library](https://gitee.com/jixiaob/GI-WebActivity-Library)
+
 欢迎提交pr更新！
 
 ## 📚H5活动链接分类
