@@ -21,7 +21,7 @@ OST宣传页：[OST.md](OST.md)
 其他页面：[Others.md](Others.md)
 
 ---
-崩坏：星穹铁道 新版本先行展示页：[HSR-Preview.md](HSR-Preview.md)
+崩坏：星穹铁道 新版本专题展示页：[HSR-Preview.md](HSR-Preview.md)
 
 崩坏：星穹铁道 其他页面：[HSR-Others.md](HSR-Others.md)
 
