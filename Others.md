@@ -1,4 +1,13 @@
-### 2023-9-28 【网页活动上线】尘星旅梦——参与可得原石等游戏内奖励
+### 2023-10-20 【有奖活动】冒险互助丨4.1版本专区活动开启!
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/19/75276550/6bde5542697dfde26c4fce32c13fbba6_8222199654919214372.png)
+
+活动地址：https://qaa.miyoushe.com/ys_help?bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/44676385
+
+
+![image](https://github.com/Zhaokugua/GI-WebActivity-Library/assets/62331496/bdd7fefe-3ba3-4037-ae34-218ed16f21d8)### 2023-9-28 【网页活动上线】尘星旅梦——参与可得原石等游戏内奖励
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/09/27/75276539/f755819046e55458c04d946f79f39abe_6078643786142647572.png)
 
@@ -23,6 +32,13 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/43360109
 
+### 2023-09-08 《原神》归忆星旅 | 战绩回顾功能上线
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/09/07/75276550/615ff9b917684d96f7cf300b38c6b634_7483240556054710903.png?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,png)
+
+活动地址：https://act.mihoyo.com/ys/event/bbs-achievements-search/index.html?mhy_presentation_style=fullscreen&mhy_auth_required=true&utm_source=bbs&utm_medium=mys&utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/43241413
 
 ### 2023-8-25 「绘知万物」——原神×知乎 网页答题活动现已开启
 
@@ -133,6 +149,12 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/40117480
 
+### 2023-5-17 「携友山间行」——微信游戏×原神 趣味分享活动现已上线
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/05/16/75276539/d639c865cf895c2e3468371474ccf356_225272028092587651.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://s.r.sn.cn/xFiNfT
+
+米游社地址：https://www.miyoushe.com/ys/article/39423828
 
 
 ### 2023-5-15 《原神》「熠金妙剂」网页活动壁纸展示
@@ -246,6 +268,39 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/32413927
 
+### 2022-11-29 《原神》「无忧梦乡」网页活动壁纸展示
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/11/28/76387920/bf4acaf12d106d995a52c5064c14e78c_1439164591081942087.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20221125aranara/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/32172858
+
+### 2022-11-25 【已开奖】「无忧梦乡」网页活动现已开启！参与可得原石等奖励
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/11/24/76387920/221abf43c47b4c5b516a6a72e8da33e5_7581030604158805305.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20221125aranara/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/32003321
+
+
+### 2022-9-29 【已开奖】「林间寻游」网页活动现已开启！参与得原石等奖励~
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/09/28/76387920/ac069ce21a30e34992ec5bb09e05ba8d_647789199286479254.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20220929-chess/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;plat=mys&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/29563734
+
+### 2022-9-28 【已开奖】【网页活动上线】绘忆星辰——参与可得原石等游戏内奖
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/09/27/76387920/29decfb0576746600147cb59016ed0ed_6406781109050597516.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20220928review_data/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/29484881
+
 
 ### 2022-9-25 《原神》线上音乐会2022网页活动现已开启~
 
@@ -273,6 +328,15 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/28970361
 
+### 2022-8-17 【已开奖】「纸间奇旅」网页活动现已开启——参与可得原石等奖励
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/08/16/76387920/62d27d8a9e8af8ae01469c31111ff389_3729359676385881049.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/20220817puzzle-qgrp/index.html?game_biz=hk4e_cn&amp;bbs_presentation_style=fullscreen&amp;bbs_auth_required=true&amp;bbs_landscape=true&amp;mhy_hide_status_bar=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/27442891
+
+
 ### 2022-8-9 「最好的伙伴」——好友问答网页活动现已开启！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2022/08/09/75276539/f2590b794a79180f443f5ff538ca52b6_3860708804881004143.png)
@@ -281,7 +345,46 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/27036647
 
+### 2022-7-22 【已开奖】「海上绮梦录」网页活动现已开启——参与可得原石等奖
 
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/07/21/76387920/f7a000d880302dce53e33eb3e9765ffa_8885680635942668846.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20220722dream-6bgs/index.html?game_biz=hk4e_cn&amp;bbs_presentation_style=fullscreen&amp;bbs_auth_required=true&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/26058101
+
+### 2022-7-4 【已开奖】「蹦蹦史莱姆」网页活动现已开启——参与可得原石等奖
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/07/01/76387920/f2fc38fe9971f83bc6d2a8805694185a_522234959951753498.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20220517-jump-eola/index.html?game_biz=hk4e_cn&amp;bbs_presentation_style=fullscreen&amp;bbs_auth_required=true&amp;bbs_landscape=true&amp;mhy_hide_status_bar=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+
+米游社地址：https://www.miyoushe.com/ys/article/25029596
+
+### 2022-4-29 【已开奖】「假日冒险？出发！」网页活动现已开启！参与得原石等
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/04/28/76387920/5723e19c71958f4d9d75db032c18c2fb_8575429169749222481.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20220429-chess-gop5/index.html?game_biz=hk4e_cn&amp;bbs_presentation_style=fullscreen&amp;bbs_auth_required=true&amp;bbs_landscape=true&amp;mhy_hide_status_bar=true&amp;plat=BBS&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/21207878
+
+### 2022-4-22 【已开奖】「轻风雅游」网页活动现已开启——参与可得原石等奖励
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/04/21/75379477/2a10140ac16e4a8508bee3b0e0e5d153_9204705589460030863.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20220415travel-tq8y/index.html?game_biz=hk4e_cn&amp;bbs_presentation_style=fullscreen&amp;bbs_auth_required=true&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/20874895
+
+### 2022-1-28 【已开奖】「尘歌宴仙归」网页活动现已开启——参与得原石等奖励
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2022/01/27/76387920/2ab70cfc815b6426f50a3f9739cbdc79_4578938044318347173.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20220128lantern/index.html?game_biz=hk4e_cn&amp;bbs_presentation_style=fullscreen&amp;bbs_auth_required=true&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/15240406
 
 ### 2021-12-29 《原神》「雪峰胜景 星耀奇旅」网页活动现已上线
 
@@ -298,6 +401,36 @@
 活动地址：https://webstatic.mihoyo.com/ys/event/e20211203-album/index.html?game_biz=hk4e_cn&amp;bbs_presentation_style=fullscreen&amp;bbs_auth_required=true&amp;bbs_landscape=true
 
 米游社地址：https://www.miyoushe.com/ys/article/12654697
+
+### 2021-11-1 【已开奖】「极鲜！炙脍之夜」网页活动现已开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/11/01/76387920/3e0cc8e4b5bfa0a40183db92297b95af_3808457316998112208.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20211101fish/index.html?game_biz=hk4e_cn&amp;bbs_presentation_style=no_header&amp;bbs_auth_required=true&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/11474124
+
+### 2021-09-29 「提瓦特冒险试炼」 ——原神x虎扑 旅途回忆分享H5现已上线
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/09/29/75276539/cf2b04b1c92b94f74f97a380c3743df4_3143262261673907329.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://cmpay.csfullspeed.com/cph5/a20210930yuanshen/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/10060701
+
+### 2021-9-28 【已开奖】铭记之旅—观看专属周年剧场，得100原石
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/09/27/76387920/c5e847d84cb3762a1f7d2bc16d632ea6_975186121827809816.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210928review/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/9990148
+
+### 2021-09-27「原神周年20问」——网页答题活动现已开启
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/09/27/75379477/9a7b10c726db6ffedc6a158dc14381ba_3773581009058583191.png?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,png)
+
+活动地址：https://genshin.1752e.com/ys/9/ys_zh/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/9957857
 
 ### 2021-8-21 「原神☆FES」&「原神交响音乐会」官网预约现已开启！
 
@@ -332,6 +465,24 @@ https://ysanniv.mihoyo.com/2021/#/concert
 活动地址：https://webstatic.mihoyo.com/ys/event/e20200225cooking/index.html?utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
 
 米游社地址：https://www.miyoushe.com/ys/article/4732534
+
+### 2021-2-20 【已开奖】提瓦特冒险记—愿寄明霄灯
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/02/20/76387920/0871ac2257e80c6e97c5afe36c4e0abe_894672429244646886.jpg)
+
+活动地址：https://bbs.mihoyo.com/ys/topicDetail/519
+
+https://webstatic.mihoyo.com/ys/event/e20210219lantern/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true
+
+米游社地址：https://www.miyoushe.com/ys/article/4549947
+
+### 2021-1-22 【活动已结束】成为史莱姆饲养员吧—「史莱姆乐园」正式开业！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/01/22/76387920/2690446b650d4774b41e78a885147030_6673770448702392511.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210122-slime/index.html?bbs_auth_required=true&amp;bbs_presentation_style=fullscreen&amp;bbs_landscape=true&amp;v=2&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/3850518
 
 ### 2020-9-15 《原神》PC版技术性开放测试现已开启
 
