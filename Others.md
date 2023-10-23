@@ -309,6 +309,14 @@ https://ysanniv.mihoyo.com/2021/#/concert
 
 米游社地址：https://www.miyoushe.com/ys/article/8744115
 
+### 2021-07-03 「旅行绘本」H5活动：完成绘制获得摆设图纸「花海的摇篮」
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/07/01/75276539/51dde9e12d5f170deee1b77dc855ec7e_7951742296725595486.jpg?x-oss-process=image//resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20211203-album/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/7206563
+
 ### 2021-4-28 「再揽星辰」H5活动已开启，邀请冒险家回归赢原石、周边！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2021/04/27/75276539/b56914f4e757480e47b38f08f846e25c_2968078695721837827.jpg)
