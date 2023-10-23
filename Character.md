@@ -165,3 +165,36 @@
 米游社地址：https://www.miyoushe.com/ys/article/6996822
 
 
+### 2020-9-14 「要做的事情，记在笔记上了。」——七七
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/09/14/75276545/5069255647110cc81d7a89a5a62a96b7_5022319454706941481.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20200914qi/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/1745111
+
+
+
+### 2020-9-13 「璃月七星」之玉衡——刻晴
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/09/13/75276545/ed8c65490d59634334435f61fe54fe99_9047901471000340466.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20200903audio/index.html#/
+
+米游社地址：https://www.miyoushe.com/ys/article/1739308
+
+
+
+### 2020-9-12 「我是伟大的占星术士莫娜，你…记住了我的全名吗？」
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/09/12/75276545/d2336d23bfeab58b8571d994897fd9b7_7429019083360005691.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20200912audio/index.html#/
+
+https://webstatic.mihoyo.com/ys/event/e20200912audio/index.html#/
+
+https://webstatic.mihoyo.com/ys/event/e20200912audio/index.html#/
+
+米游社地址：https://www.miyoushe.com/ys/article/1732877
+
+
