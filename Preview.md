@@ -177,4 +177,45 @@
 
 米游社地址：https://www.miyoushe.com/ys/article/7477306
 
+### 2021-6-3 1.6新版本「盛夏！海岛？大冒险！」先行展示页现已开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/06/03/75276545/363929853ef828d3cc346021ceb4319a_1650471274893650955.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210603prepage/index.html?bbs_presentation_style=fullscreen&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/6562342
+
+### 2021-4-22 1.5新版本「玉扉绕尘歌」先行展示页现已开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/04/19/75276545/e7c0e00ede45b1057e70ad52d630fa0e_3623449420155876441.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210422newver/index.html?bbs_presentation_style=fullscreen&amp;bbs_landscape=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/5652491
+
+### 2021-3-12 1.4新版本「风花的邀约」先行展示页现已开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/03/12/75276550/ddc538db2a4464f37c2f57f8441dc7e5_8611100761508771542.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210309prediction/index.html?bbs_landscape=true&amp;bbs_presentation_style=fullscreen
+
+米游社地址：https://www.miyoushe.com/ys/article/4906232
+
+### 2021-1-28 1.3新版本「明霄升海平」先行展示页现已开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2021/01/27/75276545/04a5153b26668f47e40e8feb797271b3_2125074487773701736.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210128warmup/index.html?bbs_landscape=true&amp;bbs_presentation_style=fullscreen
+
+米游社地址：https://www.miyoushe.com/ys/article/3946071
+
+### 2020-12-20 1.2新版本「白垩与黑龙」先行展示页现已开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2020/12/20/75276545/fa9a4a8352c5668a3b0eca6bd05ed110_8936934771060181934.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20201216new/index.html?bbs_landscape=true&amp;bbs_presentation_style=fullscreen
+
+米游社地址：https://www.miyoushe.com/ys/article/3222305
+
+
 
