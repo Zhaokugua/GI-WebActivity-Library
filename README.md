@@ -20,6 +20,12 @@ OST宣传页：[OST.md](OST.md)
 
 其他页面：[Others.md](Others.md)
 
+---
+崩坏：星穹铁道 新版本先行展示页：[HSR-Preview.md](HSR-Preview.md)
+
+崩坏：星穹铁道 其他页面：[HSR-Others.md](HSR-Others.md)
+
+
 ## 📥有关资源下载
 
 可以用这个开源项目一键下载图片立绘、live2d、spine等素材：
