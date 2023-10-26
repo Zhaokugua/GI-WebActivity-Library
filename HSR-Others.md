@@ -1,3 +1,15 @@
+### 2023-10-25 「模拟市场」网页活动开启
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/24/288909600/12555ccef28ecbbc1eddb7e3ad5c50b6_3359511652064951057.jpg)
+
+活动地址：https://act.mihoyo.com/sr/event/e20231025topaz/index.html?game_biz=hkrpg_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;mode=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=post
+
+https://bbs.mihoyo.com/sr/article/10339006
+
+米游社地址：https://www.miyoushe.com/ys/article/44832786
+
+
+
 ### 2023-8-5 【已开奖】「代号：ACTION」网页活动开启
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/08/04/288909600/fddd74e173bad320b01b42de36142da1_3499311279812071962.png)
