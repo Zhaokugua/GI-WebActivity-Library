@@ -1,3 +1,12 @@
+### 2023-11-3 1.5版本「迷离幻夜谈」专题展示页
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/02/288909600/e19403a9da1e50ce7c129dfe961da8d9_5645192299010372689.jpg)
+
+活动地址：https://act.mihoyo.com/sr/event/e20231018version-5kx3qh/index.html?game_biz=hkrpg_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;mode=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=post
+
+米游社地址：https://www.miyoushe.com/ys/article/45094191
+
+
 ### 2023-9-29 1.4版本「冬梦激醒」专题展示页现已上线
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/09/28/288909600/c2455242d308e511c7cffec51ea61f4f_7785947778194388456.jpg)
