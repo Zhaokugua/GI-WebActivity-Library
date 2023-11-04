@@ -1,3 +1,12 @@
+### 2023-11-4 4.2新版本「罪人舞步旋」先行展示页现已开启!
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/26/75276539/51e85078dade78fd133534fe9a5ed126_5254727798442116734.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20231028preview/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/45114794
+
+
 ### 2023-9-16 4.1新版本「向深水中的晨星」先行展示页现已开启！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/09/15/75276539/2bda710f9a9b53e6fc01612567ee7bb9_3813962110640116637.jpg)
