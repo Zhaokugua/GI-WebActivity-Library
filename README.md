@@ -7,6 +7,12 @@
 
 国内预览图加载不出来可以试试去Gitee：[https://gitee.com/jixiaob/GI-WebActivity-Library](https://gitee.com/jixiaob/GI-WebActivity-Library)
 
+目前收录的链接都是国服版本，如果需要国际服（海外版本），请手动更改域名。
+
+For Global Players, Please replace the host name yourself.
+
+>act.mihoyo.com  -->  act.hoyoverse.com
+
 欢迎提交pr更新！
 
 ## 📚H5活动链接分类
