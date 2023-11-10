@@ -1,3 +1,13 @@
+### 2023-11-8 全新强敌——「吞星之鲸」
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/07/75276539/1cfd6ec2d52794ce73f3e20984e74fbb_5639420506820339414.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=8d04ad6701394a81&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=pgc
+
+米游社地址：https://www.miyoushe.com/ys/article/45244832
+
+
+
 ### 2023-10-22 「人生的波峰与波谷」玩法小贴士
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/20/75276539/cd5c8ae36a37dfd80e83f33520ee8689_675760572834847223.jpg)
