@@ -1,3 +1,12 @@
+### 2023-11-6 特邀「名侦探」——《原神》新角色：芙宁娜分享H5正式上线。
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/05/75276539/7a5d9f04db05cb50e0bea2a56cd5f7ea_8207227436346654748.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20231103furina/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true
+
+米游社地址：https://www.miyoushe.com/ys/article/45180945
+
+
 ### 2023-10-12 「机关轰鸣中」——《原神》新角色：莱欧斯利分享H5正式上线
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/11/75276539/cea8da76769c4684e0814922f6fe4837_5630939686095200199.png)
