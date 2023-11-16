@@ -1,10 +1,10 @@
-### 2023-11-10 《原神》游戏原声EP专辑《轻涟》即将上线
+### 2023-11-14 《原神》「轻涟」QQ音乐专题活动正式上线
 
-![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/10/75276539/8cc62f13e5c8d1f22f84108db06eb6d6_2920734031137305979.jpg)
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/14/75276539/2764b207b9cbb2b89894f7c033d16065_5062240164751773924.jpg)
 
-活动地址：https://y.qq.com/n3/client/pages/reserve_v2/index.html?id=2310
+活动地址：https://y.qq.com/forest/P9LgU6pvgBxaP0Cs/index.html
 
-米游社地址：https://www.miyoushe.com/ys/article/45337479
+米游社地址：https://www.miyoushe.com/ys/article/45485076
 
 
 ### 2023-10-3 「远寄佳音」——《原神》枫丹篇OST宣传H5正式上线
