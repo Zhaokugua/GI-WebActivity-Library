@@ -1,3 +1,12 @@
+### 2023-11-16 《原神》「珊海绮书」分享活动现已上线
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/16/75276539/aaeada8976032177bda3ed24b7d0e844_8657990380958723909.jpg)
+
+活动地址：https://mihoyo.genshinnet.com/xhs/index.html
+
+米游社地址：https://www.miyoushe.com/ys/article/45549812
+
+
 ### 2023-10-20 【有奖活动】冒险互助丨4.1版本专区活动开启!
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/19/75276550/6bde5542697dfde26c4fce32c13fbba6_8222199654919214372.png)
