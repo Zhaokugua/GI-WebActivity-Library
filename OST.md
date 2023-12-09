@@ -1,3 +1,22 @@
+### 2023-12-8 2023原神线上音乐会节目信息公开！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/08/75276539/88fb115d2f3a7e3dd3c5c3a130a2ce92_1820038613106401633.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20231208music/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_hide_status_bar=true
+
+米游社地址：https://www.miyoushe.com/ys/article/46337617
+
+
+
+### 2023-12-8 4.3版本PV音乐现已更新加入专辑
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/08/75276539/e8bf2f515da20e3919ee4e7ba1f91b5f_5035995438653464336.jpg)
+
+活动地址：http://t.cn/A6SdwHOR
+
+米游社地址：https://www.miyoushe.com/ys/article/46337198
+
+
 ### 2023-11-14 《原神》「轻涟」QQ音乐专题活动正式上线
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/14/75276539/2764b207b9cbb2b89894f7c033d16065_5062240164751773924.jpg)
