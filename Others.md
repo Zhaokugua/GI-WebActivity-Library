@@ -1,3 +1,16 @@
+
+
+
+
+### 2023-11-17 《原神》入围 TGA 2023「最佳持续运营游戏」
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/16/75276539/688fc75c0c8b676ffc3b3a829924fcfa_8400070367169344563.png)
+
+活动地址：https://thegameawards.com/nominees/best-ongoing
+
+米游社地址：https://www.miyoushe.com/ys/article/45585969
+
+
 ### 2023-11-16 《原神》「珊海绮书」分享活动现已上线
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/16/75276539/aaeada8976032177bda3ed24b7d0e844_8657990380958723909.jpg)
