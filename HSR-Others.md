@@ -1,3 +1,12 @@
+### 2023-11-15 「重返群星之旅」回归网页活动
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/14/288909600/bd8cfeb7a3f8138ca22fa6f2dd01e1a2_1998500979049823020.png)
+
+活动地址：https://act.mihoyo.com/sr/event/e20231115reflow-bd3a09/index.html?game_biz=hkrpg_cn&amp;mhy_auth_required=true&amp;utm_source=bbs&amp;utm_medium=post
+
+米游社地址：https://www.miyoushe.com/ys/article/45514204
+
+
 ### 2023-10-25 「模拟市场」网页活动开启
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/24/288909600/12555ccef28ecbbc1eddb7e3ad5c50b6_3359511652064951057.jpg)
