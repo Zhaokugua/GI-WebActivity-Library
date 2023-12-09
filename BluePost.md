@@ -26,6 +26,14 @@
 米游社地址：https://www.miyoushe.com/ys/article/45244832
 
 
+### 2023-11-6 4.2版本 「罪人舞步旋」内容专题页上线！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/03/75276545/554a1356656f889fe641e607d92b32f5_9021306331512982836.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=8d04ad6701394a81&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=post
+
+米游社地址：https://www.miyoushe.com/ys/article/45181202
+
 
 ### 2023-10-22 「人生的波峰与波谷」玩法小贴士
 
@@ -64,6 +72,8 @@
 活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=bb3f2fb3c8474c2f&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=pgc
 
 米游社地址：https://www.miyoushe.com/ys/article/44363217
+
+
 
 ### 2023-10-11 莱欧斯利——「理论上来讲，完全不认识我的人会比较幸福。」
 
