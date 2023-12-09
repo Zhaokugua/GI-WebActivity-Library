@@ -1,3 +1,22 @@
+### 2023-11-23 「罪人舞步旋」4.2版本活动速递第二期
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/20/75276539/ff9b2b2917ac61f492b89319782d86c5_1489793693796765946.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=8d04ad6701394a81&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=pgc
+
+米游社地址：https://www.miyoushe.com/ys/article/45825097
+
+
+
+### 2023-11-22 「特尔克西的奇幻历险」玩法说明
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/20/75276539/68d78aeb9efc1c2163233adf825a6af1_5380330052285192944.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=8d04ad6701394a81&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=pgc
+
+米游社地址：https://www.miyoushe.com/ys/article/45773923
+
+
 ### 2023-11-8 全新强敌——「吞星之鲸」
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/07/75276539/1cfd6ec2d52794ce73f3e20984e74fbb_5639420506820339414.png)
