@@ -1,3 +1,12 @@
+### 2023-12-9 4.3新版本「蔷薇与铳枪」先行展示页现已开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/08/75276539/0bccbd448bdc74a6308220f5d9ec1da7_4833682073270513158.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20231209preview-yh731z/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;mode=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/46358464
+
+
 ### 2023-11-4 4.2新版本「罪人舞步旋」先行展示页现已开启!
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/26/75276539/51e85078dade78fd133534fe9a5ed126_5254727798442116734.jpg)
