@@ -1,4 +1,10 @@
+### 2023-12-6 一起来看《原神》4.3版本前瞻特别节目吧！
 
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/06/75276550/21676636980b4fa1a685a40ea345743f_6809360679257244291.png)
+
+活动地址：https://webstatic.mihoyo.com/bbs/event/live/index.html?act_id=ea202312042150486918&amp;mhy_presentation_style=fullscreen&amp;game_biz=hk4e&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/46261810
 
 
 
@@ -11,6 +17,25 @@
 米游社地址：https://www.miyoushe.com/ys/article/45585969
 
 
+### 2023-11-17 【有奖活动】冒险互助丨4.2版本专区活动开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/16/75276550/ac35705706a3d05dfd095624bae40d73_4814454125756250520.png)
+
+活动地址：https://qaa.miyoushe.com/ys_help?bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/45587094
+
+
+
+### 2023-11-17 米游币抽抽乐-原神专场现已开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/14/75276550/5546bbdf3b1b5314256f03d42c05d297_8388676926019501718.png)
+
+活动地址：https://webstatic.mihoyo.com/bbs/event/bbs-event-ccl/index.html?bbs_presentation_style=fullscreen&amp;bbs_auth_required=true&amp;id=e202311131443001&amp;game_biz=hk4e&amp;utm_source=mys&amp;utm_medium=ys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/45585961
+
+
 ### 2023-11-16 《原神》「珊海绮书」分享活动现已上线
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/16/75276539/aaeada8976032177bda3ed24b7d0e844_8657990380958723909.jpg)
@@ -18,6 +43,104 @@
 活动地址：https://mihoyo.genshinnet.com/xhs/index.html
 
 米游社地址：https://www.miyoushe.com/ys/article/45549812
+
+
+### 2023-11-15 【米游币祈愿盒】原神周边礼包上新！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/15/75276550/661a340d043179901f418b7fbe1a5d34_6050950449690321012.png)
+
+活动地址：https://webstatic.mihoyo.com/bbs/event/mihoyo-coin/index.html?mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;biz=ys&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/45511180
+
+
+
+### 2023-11-14 【问卷调研】《原神》冒险互助问卷反馈1.0
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/13/75276550/7c8237dfa77807d4719b9e32443a6d65_2796779549652228309.png)
+
+活动地址：https://mhyurl.cn/9SUfFBAL
+
+米游社地址：https://www.miyoushe.com/ys/article/45482311
+
+
+
+### 2023-11-9 《原神》卡牌广场更新速览 | 新增牌组分享码功能
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/08/75276550/eae5e5a9f8f53b98eff631dc8cc948c8_7442490273920582304.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/bbs-lineup-qskp/index.html?mhy_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/45297648
+
+
+### 2023-11-9 《原神》4.2版本社区内容一览（持续更新）
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/08/75276550/1c90b0713796692da5b9c3a734b4ae52_545760543434409307.jpeg)
+
+活动地址：https://webstatic.mihoyo.com/bbs/event/signin-ys/index.html?bbs_auth_required=true&amp;act_id=e202009291139501&amp;utm_source=game&amp;utm_medium=ys&amp;utm_campaign=arti
+
+https://webstatic.mihoyo.com/app/community-game-records/?game_id=2&amp;mys_source=bbs&amp;mys_medium=mys&amp;mys_campaign=arti
+
+https://webstatic.mihoyo.com/app/community-creator/#/task
+
+米游社地址：https://www.miyoushe.com/ys/article/45309493
+
+
+
+### 2023-11-9 《原神》战绩「迷城战线·水境篇」挑战数据一览
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/08/75276550/eeb26ea045d375be0d75714d6456b010_1612305969933425112.png)
+
+活动地址：https://webstatic.mihoyo.com/app/community-game-records/?game_id=2&amp;mys_source=bbs&amp;mys_medium=mys&amp;mys_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/45309492
+
+
+### 2023-11-8 《原神》战绩4.2版本更新 | 新增牌组分享码功能
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/07/75276550/b2e1b92fd07b26189f7efd13afcdb241_416855040899302423.png)
+
+活动地址：https://webstatic.mihoyo.com/app/community-game-records/?game_id=2&amp;mys_source=bbs&amp;mys_medium=mys&amp;mys_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/45263974
+
+
+### 2023-11-5 【蒸汽鸟报特刊】4.2版本新区域展示页上线！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/02/75276545/93a8beee7646a80c02ca741693fe0b84_57749231660310553.jpg)
+
+活动地址：https://act.mihoyo.com/puzzle/hk4e/pz_8Dm3bjnlyD/index.html?mhy_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/45149241
+
+
+### 2023-11-1 一起来看《原神》4.2版本前瞻特别节目（调整后）吧！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/01/75276550/291fbb32c74896927d0631b42b02dc5a_8932860142099840310.jpeg)
+
+活动地址：https://webstatic.mihoyo.com/bbs/event/live/index.html?act_id=ea202310201450137761&amp;mhy_presentation_style=fullscreen&amp;game_biz=hk4e&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/45037976
+
+
+### 2023-10-26 【电子杂志】原神三周年同人作品欣赏
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/25/75276550/caec3ea6e7db25edc7cc51f40f3bc1cd_1570765867466232619.png)
+
+活动地址：https://webstatic.mihoyo.com/bbs/event/e20210819ezine/index.html?game_biz=ys&amp;mhy_presentation_style=fullscreen#/zine/29
+
+米游社地址：https://www.miyoushe.com/ys/article/44859106
+
+
+
+### 2023-10-25 一起来看《原神》4.2版本前瞻特别节目吧！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/10/25/75276550/c3eab2197196ac1ef271d4bb57be81fe_7359483561274739144.png)
+
+活动地址：https://webstatic.mihoyo.com/bbs/event/live/index.html?act_id=ea202310201450137761&amp;mhy_presentation_style=fullscreen&amp;game_biz=hk4e&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/44841007
 
 
 ### 2023-10-20 【有奖活动】冒险互助丨4.1版本专区活动开启!
