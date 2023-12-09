@@ -1,3 +1,12 @@
+### 2023-12-9 原神音乐会2023 - 无际之旅的旋律（预告片）
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/09/75276539/ad11ea36e5cf91d7d391f661730717c6_1896206162126379672.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20231208music/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_hide_status_bar=true
+
+米游社地址：https://www.miyoushe.com/ys/article/46359207
+
+
 ### 2023-12-8 2023原神线上音乐会节目信息公开！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/08/75276539/88fb115d2f3a7e3dd3c5c3a130a2ce92_1820038613106401633.jpg)
