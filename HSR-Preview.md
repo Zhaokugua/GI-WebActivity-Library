@@ -1,3 +1,13 @@
+### 2023-12-15 1.6版本「庸与神的冠冕」专题展示页
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/14/288909600/8121077f7e5c168e04ffb05203f7e668_8148881610182026936.jpg)
+
+活动地址：https://act.mihoyo.com/sr/event/e20231215version-92kbcf/index.html?game_biz=hkrpg_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;mode=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=post
+
+米游社地址：https://www.miyoushe.com/ys/article/46570067
+
+
+
 ### 2023-11-3 1.5版本「迷离幻夜谈」专题展示页
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/02/288909600/e19403a9da1e50ce7c129dfe961da8d9_5645192299010372689.jpg)
