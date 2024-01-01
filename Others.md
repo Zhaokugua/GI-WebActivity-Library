@@ -1,3 +1,43 @@
+### 2023-12-29 《原神》「壁纸放送」
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/29/75276539/05b8f202b2cd630a795ffb100b294e4d_5183252762769948047.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/community-content-collection/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;utm_source=game&amp;utm_medium=ys&amp;utm_campaign=launcher#/wallpaper
+
+米游社地址：https://www.miyoushe.com/ys/article/47095352
+
+
+
+### 2023-12-27 【网页活动上线】小小幕后——参与可得原石等游戏内奖励。
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/26/75276539/cd3d35fdb0055e04653f3accf5962df8_4366999399725026582.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20231227filmfest-qw321w/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;mode=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+米游社地址：https://www.miyoushe.com/ys/article/46990545
+
+
+
+### 2023-12-25 「美露莘的调查问卷」网页活动上线，参与即可获得原石！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/25/75276539/3cf662f559889e7c1a882e1ff4eb0a66_2847633939545913137.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20231225melusine-questionnaire/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true
+
+米游社地址：https://www.miyoushe.com/ys/article/46910916
+
+
+
+### 2023-12-20 原神×三星堆博物馆联动H5「开山览物」已上线
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/19/75276539/04af835065b7038e86dce873536beda9_2235297862573432918.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20231220sanxingdui/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true
+
+米游社地址：https://www.miyoushe.com/ys/article/46742447
+
+
+
 ### 2023-12-6 一起来看《原神》4.3版本前瞻特别节目吧！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/06/75276550/21676636980b4fa1a685a40ea345743f_6809360679257244291.png)
