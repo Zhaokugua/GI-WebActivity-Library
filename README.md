@@ -38,6 +38,8 @@ OST宣传页：[OST.md](OST.md)
 
 [一键从原神网页活动中提取spine模型及相关图片素材 Extract static resources from genshin web activity pages in one click!](https://github.com/YuehaiTeam/webstatic-extractor)
 
+如果你只是想保存背景音乐，可以在浏览器打开页面后右键，选择检查，然后选择网络，在筛选器里输入mp3，然后刷新一下网页就能看到mp3了，右键在新标签页打开就能下载了。
+
 ## 🎇前言
 之前就想着原神这些活动页面有很多图片或者live2d资源（比如新版本先行展示页里的角色部分都是动态live2d立绘），有很多角色的动态立绘都在网页里面，为了方便收集提取所以记录一下活动的网页地址。
 
