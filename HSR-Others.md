@@ -1,3 +1,12 @@
+### 2023-12-30 「群星的寓言」网页活动上线，集启示代码，抽锦鲤奖池！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/29/288909600/5c145e3d3b2dc9aa16b2045c587c665a_6966469828270659052.jpg)
+
+活动地址：https://act.mihoyo.com/sr/event/e20231230card-d0a2c0/index.html?game_biz=hkrpg_cn&mhy_presentation_style=fullscreen&mhy_auth_required=true&mhy_hide_status_bar=true&mode=fullscreen&utm_source=bbs&utm_medium=ts
+
+米游社地址：https://www.miyoushe.com/ys/article/47186041
+
+
 ### 2023-11-15 「重返群星之旅」回归网页活动
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/14/288909600/bd8cfeb7a3f8138ca22fa6f2dd01e1a2_1998500979049823020.png)
