@@ -1,3 +1,22 @@
+### 2023-12-20 「蔷薇与铳枪」玩法说明
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/19/75276539/16384e7435328c7800ac49d6b5287fa6_3454026352668334022.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=28c728e857d14cc5&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=pgc
+
+米游社地址：https://www.miyoushe.com/ys/article/46722961
+
+
+
+### 2023-12-18 「蔷薇与铳枪」4.3版本活动速递第一期
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/16/75276539/a7f5d879af81069f94c7a08800fd08f7_7913046890881126909.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=28c728e857d14cc5&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=pgc
+
+米游社地址：https://www.miyoushe.com/ys/article/46664338
+
+
 ### 2023-11-23 「罪人舞步旋」4.2版本活动速递第二期
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/11/20/75276539/ff9b2b2917ac61f492b89319782d86c5_1489793693796765946.png)
