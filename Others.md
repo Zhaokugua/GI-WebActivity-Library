@@ -1,3 +1,13 @@
+### 2024-1-18 【网页活动上线】清洁！大作战——参与可得原石等奖励！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/17/76387920/fa910728c543c26d77970ed589f35861_3972203910519402621.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20240118brush-u4b6my/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+https://bbs.mihoyo.com/ys/article/48940
+
+米游社地址：https://www.miyoushe.com/ys/article/48074665
+
 
 ### 2024-1-12 《原神》「流光拾遗之旅」特别回顾页——参与可得原石等奖励
 
