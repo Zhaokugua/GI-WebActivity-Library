@@ -1,3 +1,13 @@
+
+### 2024-1-12 《原神》「流光拾遗之旅」特别回顾页——参与可得原石等奖励
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/11/75276539/e6fb618cfbe35bb7cf3eb942b10248ef_8689740714710661802.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20231115ich-852iqo/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;mhy_auth_required=true
+
+米游社地址：https://www.miyoushe.com/ys/article/47871916
+
+
 ### 2023-12-29 《原神》「壁纸放送」
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/29/75276539/05b8f202b2cd630a795ffb100b294e4d_5183252762769948047.jpg)
