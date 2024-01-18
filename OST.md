@@ -1,3 +1,23 @@
+### 2024-1-18 「星光来信」——《原神》第四张角色主题OST宣传H5正式上线
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/17/75276539/c2762c9fab00417d04d2a2801cfd404f_9008268290231800486.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20240118ost-10646b17/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_hide_status_bar=true&amp;source_mode=1
+
+米游社地址：https://www.miyoushe.com/ys/article/48077136
+
+
+
+### 2024-1-17 《原神》第四张角色主题OST「闪耀的群星4」现已正式上线。
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/16/75276539/652f3f4a7af7bfdbc53000a28e97fa6e_2379219922974340134.jpg)
+
+活动地址：https://y.qq.com/w/album.html?albumId=45757747&amp;ADTAG=hz_wb_sf&amp;channelId=10081987
+
+米游社地址：https://www.miyoushe.com/ys/article/48040069
+
+
+
 ### 2023-12-9 原神音乐会2023 - 无际之旅的旋律（预告片）
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/09/75276539/ad11ea36e5cf91d7d391f661730717c6_1896206162126379672.jpg)
