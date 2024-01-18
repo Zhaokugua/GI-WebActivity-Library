@@ -1,3 +1,14 @@
+### 2024-1-4 「蔷薇与铳枪」4.3版本活动速递第二期
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/03/75276539/52a61644a8d5e5285ff7ead6e8913d5b_166650185500215343.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=28c728e857d14cc5&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=pgc
+
+米游社地址：https://www.miyoushe.com/ys/article/47577976
+
+
+
+
 ### 2023-12-20 「蔷薇与铳枪」玩法说明
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/19/75276539/16384e7435328c7800ac49d6b5287fa6_3454026352668334022.png)
