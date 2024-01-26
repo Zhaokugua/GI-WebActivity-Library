@@ -1,3 +1,13 @@
+
+### 2024-1-20 4.4新版本「彩鹞栉春风」先行展示页现已开启！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/19/75276539/381271169a030d8402f3b52153e3f4f4_1819178079001337975.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20240120preview/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true
+
+米游社地址：https://www.miyoushe.com/ys/article/48151764
+
+
 ### 2023-12-9 4.3新版本「蔷薇与铳枪」先行展示页现已开启！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/08/75276539/0bccbd448bdc74a6308220f5d9ec1da7_4833682073270513158.jpg)
