@@ -1,3 +1,34 @@
+
+### 2024-1-23 《原神》「清洁！大作战」网页活动壁纸展示
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/22/75276539/c2420857533f11b1706bebc19d2b14eb_1756053125943098861.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20240118brush-u4b6my/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=bizhi
+
+https://act.mihoyo.com/ys/event/community-content-collection/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;utm_source=game&amp;utm_medium=ys&amp;utm_campaign=launcher#/wallpaper
+
+米游社地址：https://www.miyoushe.com/ys/article/48263948
+
+
+### 2024-1-19 4.4版本PV音乐现已更新加入专辑
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/19/75276539/ce0753baddd38dad149610fea0c67ed9_5034280460621586349.jpg)
+
+活动地址：http://t.cn/A6SdwHOR
+
+米游社地址：https://www.miyoushe.com/ys/article/48128900
+
+
+
+### 2024-1-19 《原神》「壁纸放送」
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/19/75276539/aa71b1f3f5690eab45ff6b8e7134cb42_5475049299610097440.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20240118ost-10646b17/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_hide_status_bar=true&amp;source_mode=1
+
+米游社地址：https://www.miyoushe.com/ys/article/48110203
+
+
 ### 2024-1-18 【网页活动上线】清洁！大作战——参与可得原石等奖励！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/17/76387920/fa910728c543c26d77970ed589f35861_3972203910519402621.jpg)
