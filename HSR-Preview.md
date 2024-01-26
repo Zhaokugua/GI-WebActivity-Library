@@ -1,3 +1,12 @@
+### 2024-1-26 2.0版本「假如在午夜入梦」专题展示页
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/25/288909600/01a8d4763a5698920970bd3b87cf7029_9074626212631067838.jpg)
+
+活动地址：https://act.mihoyo.com/sr/event/e20240126version-pp3ay8/index.html?game_biz=hkrpg_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;mode=fullscreen&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=post
+
+米游社地址：https://www.miyoushe.com/ys/article/48373525
+
+
 ### 2023-12-15 1.6版本「庸与神的冠冕」专题展示页
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/14/288909600/8121077f7e5c168e04ffb05203f7e668_8148881610182026936.jpg)
