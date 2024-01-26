@@ -1,3 +1,12 @@
+### 2024-1-26 「仙人筑机巧」——《原神》新角色：闲云分享H5正式上线
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/25/75276539/8c62a2f167ac796220a8255eeb2bb954_2120022448413244920.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20240126xianyun-yzdnly/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true
+
+米游社地址：https://www.miyoushe.com/ys/article/48358761
+
+
 ### 2023-12-15 「马卡龙作战」——《原神》新角色：娜维娅分享H5正式上线。
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/15/75276539/8eaf41dabe45d3a4793b8afd61e8e931_3541722775305892166.jpg)
