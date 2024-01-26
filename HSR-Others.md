@@ -1,3 +1,23 @@
+
+### 2024-1-17 群星的寓言 中奖启示代码公示
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/17/288909600/496870a06217d54a98991f13126ff713_343166590034611999.jpg)
+
+活动地址：https://webstatic.mihoyo.com/bbs/event/ebbsawards/index.html?app=e20231230card&amp;cf=0111&amp;game_biz=sr
+
+米游社地址：https://www.miyoushe.com/ys/article/48045570
+
+
+
+### 2024-1-3 群星的寓言 | 角色启示卡展示
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/02/288909600/85467da11ed3f8ae7b78b207d5f97e97_1006498298786005695.png)
+
+活动地址：https://mhyurl.cn/dQxfFBAL
+
+米游社地址：https://www.miyoushe.com/ys/article/47535227
+
+
 ### 2023-12-30 「群星的寓言」网页活动上线，集启示代码，抽锦鲤奖池！
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2023/12/29/288909600/5c145e3d3b2dc9aa16b2045c587c665a_6966469828270659052.jpg)
