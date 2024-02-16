@@ -1,3 +1,23 @@
+### 2024-2-4 「彩鹞栉春风」玩法说明
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/02/02/75276539/8d3b6ad73d91b184e31b991c1ff3cc32_2761741783915119548.jpg)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=efd9bb63eb434b9a&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=pgc
+
+米游社地址：https://www.miyoushe.com/ys/article/48757576
+
+
+
+### 2024-1-30 「彩鹞栉春风」4.4版本活动速递
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/29/75276539/122fa101dd3e0d07963ffc6e5ff976e4_1620151563212116034.png)
+
+活动地址：https://webstatic.mihoyo.com/ys/event/e20210601blue_post/vert.html?page_sn=efd9bb63eb434b9a&amp;bbs_presentation_style=fullscreen&amp;utm_source=bbs&amp;utm_medium=ys&amp;utm_campaign=pgc
+
+米游社地址：https://www.miyoushe.com/ys/article/48499091
+
+
+
 ### 2024-1-4 「蔷薇与铳枪」4.3版本活动速递第二期
 
 ![预览图](https://upload-bbs.miyoushe.com/upload/2024/01/03/75276539/52a61644a8d5e5285ff7ead6e8913d5b_166650185500215343.png)
