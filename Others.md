@@ -1,3 +1,37 @@
+### 2024-2-13 《原神》「狮舞鸢飞」网页活动壁纸展示
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/02/07/75276539/3308d50bb7cf3450e0bdbc833629548e_322613663319407438.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20240208lantern-vc7vnh/index.html?game_biz=hk4e_cn&amp;sign_type=2&amp;auth_appid=e20240208lantern&amp;authkey_ver=1&amp;utm_source=game&amp;utm_medium=ys&amp;utm_campaign=tedian
+
+https://act.mihoyo.com/ys/event/community-content-collection/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;utm_source=game&amp;utm_medium=ys&amp;utm_campaign=launcher#/wallpaper
+
+米游社地址：https://www.miyoushe.com/ys/article/49214547
+
+
+
+### 2024-2-10 《原神》「狮舞鸢飞」网页活动壁纸展示
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/02/04/75276539/331d2293eb080e6722c2822c36b5347a_6096202028225878332.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20240208lantern-vc7vnh/index.html?game_biz=hk4e_cn&amp;sign_type=2&amp;auth_appid=e20240208lantern&amp;authkey_ver=1&amp;utm_source=game&amp;utm_medium=ys&amp;utm_campaign=tedian
+
+https://act.mihoyo.com/ys/event/community-content-collection/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;utm_source=game&amp;utm_medium=ys&amp;utm_campaign=launcher#/wallpaper
+
+米游社地址：https://www.miyoushe.com/ys/article/49094369
+
+
+
+### 2024-2-8 【网页活动上线】狮舞鸢飞——参与可得原石等游戏内奖励。
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/02/04/75276539/d1ea0cef0b2d50fa5c82b7a8049c70ee_826660409558689304.jpg)
+
+活动地址：https://act.mihoyo.com/ys/event/e20240208lantern-vc7vnh/index.html?game_biz=hk4e_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;utm_source=bbs&amp;utm_medium=mys&amp;utm_campaign=arti
+
+https://bbs.mihoyo.com/ys/article/48940
+
+米游社地址：https://www.miyoushe.com/ys/article/48988476
+
 
 ### 2024-1-23 《原神》「清洁！大作战」网页活动壁纸展示
 
