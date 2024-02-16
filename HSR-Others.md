@@ -1,3 +1,11 @@
+### 2024-2-6 「盛会邀约」回归网页活动上线，参与最高可得540星琼等好礼！
+
+![预览图](https://upload-bbs.miyoushe.com/upload/2024/02/05/288909600/bdcdf42a9f37225caadd389f1f743419_3251812024141729674.jpg)
+
+活动地址：https://act.mihoyo.com/sr/event/e20240206relow-lxxr53/index.html?game_biz=hkrpg_cn&amp;mhy_presentation_style=fullscreen&amp;mhy_auth_required=true&amp;mhy_landscape=true&amp;mhy_hide_status_bar=true&amp;win_mode=fullscreen&amp;utm_source=bbs&amp;utm_medium=post
+
+米游社地址：https://www.miyoushe.com/ys/article/48868605
+
 
 ### 2024-1-17 群星的寓言 中奖启示代码公示
 
